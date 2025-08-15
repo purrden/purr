@@ -4,7 +4,7 @@ form your own opinion at your own pace.
 There is only one thing that purr is not – hate.
 We gathered here to PURR after all.
 
-###i. I learn a lot from cats.
+### 1. I learn a lot from cats.
 I am allergic to cats and it is a big bummer. But 
 damn does not this stop me from interacting with these
 majestic masters of purr.
